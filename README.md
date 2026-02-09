@@ -1,6 +1,6 @@
 # Hello
 ## welcome to this random java programmer's bio
-I am moderately depressed and program half the time and play osu and mindustry the other half the time.  
+I am only slightly depressed and program half the time and play osu and mindustry the other half the time.  
 Sleeping schedule: nonexistent
 Autistic and has ADHD, and copious amounts of anxiety. 
 Discord: @theradioactivebanana or TheRadioactiveBanana#0545
